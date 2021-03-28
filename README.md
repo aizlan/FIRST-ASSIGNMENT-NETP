@@ -1,3 +1,3 @@
 # FIRST-ASSIGNMENT-NETP
 
-Ajam anjink
+Okay la ajam babi
